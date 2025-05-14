@@ -1,4 +1,4 @@
-# Swathi Loganathan | Data Analyst at 10xHired, Hyderabad
+# Swathi Loganathan | Data Analyst at Lumaternix Technology Solutions LLP, Hyderabad
 
 👋 Welcome to my GitHub profile!
 
